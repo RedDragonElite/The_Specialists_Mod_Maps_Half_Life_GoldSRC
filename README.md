@@ -152,7 +152,7 @@ These maps are released for historical preservation and community use. Original 
 
 ## 💝 Final Thanks
 
-Massive gratitude to Shin, Aurora, Ovi, RiZor, Hindo, DGF, and every single person who contributed to making Red Dragon Roleplay the legendary community it became. Your creativity, passion, and dedication created something truly special that continues to inspire people decades later.
+Massive gratitude to Shin, Aurora, Ovi, RiZor, Flippy, Hindo, DGF, and every single person who contributed to making Red Dragon Roleplay the legendary community it became. Your creativity, passion, and dedication created something truly special that continues to inspire people decades later.
 
 The Red Dragon legacy lives on. 🐉
 
